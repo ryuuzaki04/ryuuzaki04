@@ -75,7 +75,7 @@ i know how to code hehehe (python,sql)
 
 ︿(Socials)﹀
 
-❝Instagram: ryuuzaki_04
+❝Instagram: ryuuzaki0_o
 
 Line id : eci40487263❞
 
