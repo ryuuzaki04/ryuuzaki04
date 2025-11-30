@@ -28,6 +28,7 @@ DO NOT INT IF:
 ✵✶✵✶✵✶(⁠灬⁠º⁠‿⁠º⁠灬⁠)⁠♡
 
 ✽✽「about me」✵✵✵✵✵
+
 ゝLikes:                                                                                                           
 reading,drawing,baking,     
 music, photography....        
