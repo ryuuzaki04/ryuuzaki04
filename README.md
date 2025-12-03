@@ -40,42 +40,22 @@ I care about..
 
 ✵✶✵✶✵✶✵✵✶✵✶✵✶✵
 
-[Basic facts about me!] ..(⁠´⁠∩⁠｡⁠•⁠ ⁠ᵕ⁠ ⁠•⁠｡⁠∩⁠`⁠)..
+E,N,R,W,E,B,M,K,S,E. <3
 
-◈ i have a job and am in uni !! (english lit and world history major <3)
+current following : FORSAKEN
 
-◈Birthday: 27/12
+-> this user doesn't care about ships hence everyship int 1!
 
-◈Favourite colour: anything off-white
-
-◈Favourite drink: cold green tea/black coffee
-
-◈Favourite song: ANY ado song/Toby fox ost.
-
-◈Author i follow: (any jpn classic literature author), edger Allan Poe, Nikolai.
-
-◈Places i want to visit one day: The whole eu, usa, china
-
-◈Favourite animal: raccoon,fox, hamster, bunny
-
-◈Languages i know/am learning 
-• Japanese
-• Mandarin (able to understand cuz kanji)
-• English 
-• French (a bit)
-• German 
-• korean (started learning) 
-
-i know how to code hehehe (python,sql)
-
-
-◈Games of all time: deltarune, persona, ena (any indie game), FORSAKEN!!!
 
 ◣(⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡............◥
 
 ︿(Socials)﹀
 
 ❝Instagram: ryuuzaki0_o
+
+AO3: ryuuo_0
+
+Discord : ryuuzaki_04
 
 Line id : eci40487263❞
 
