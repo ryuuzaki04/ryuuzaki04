@@ -19,7 +19,7 @@ DO NOT INT IF:
 
 ✵♪pronoun: she/her
 
-✵↷Age: 17
+✵↷Age: 18
 
 ✵↺Sexuality: bisexual (+asexual)
 
