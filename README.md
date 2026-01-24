@@ -1,5 +1,4 @@
 # hoi!
-https://64.media.tumblr.com/398f420133c0b0d410ff16755d4a346b/f33636cef9564e3f-4a/s250x400/68b48bd7432082618c314f7887481ae4a70c799c.gifv
 
 DO NOT INT IF:
 
