@@ -2,7 +2,7 @@
 
 DO NOT INT IF:
 
-✵ You are a minor (under 16),
+✵ You are a minor (under 14) [i have really don't have problem with it (cuz ofcouse i am not gonna be with them what so ever) just for the comfort from the other side],
 ✵ Rude to any of my friends,
 ✵ Want to online  date (i am not into that),
 ✵ A pick me or attention seeker (like, starting to cry when i am talking to someone else but you),
