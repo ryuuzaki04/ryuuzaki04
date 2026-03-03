@@ -42,7 +42,7 @@ I care about..
 
 E,N,R,W,E,B,M,K,S,E. <3
 
-current following : FORSAKEN
+current following : Project moon (all three games)
 
 -> this user doesn't care about ships hence everyship int 1!
 
