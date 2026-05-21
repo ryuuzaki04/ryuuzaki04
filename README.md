@@ -3,12 +3,19 @@
 DO NOT INT IF:
 
 ✵ You are a minor (under 14) [i have really don't have problem with it (cuz ofcouse i am not gonna be with them what so ever) just for the comfort from the other side],
+
 ✵ Rude to any of my friends,
+
 ✵ Want to online  date (i am not into that),
+
 ✵ A pick me or attention seeker (like, starting to cry when i am talking to someone else but you),
+
 ✵ Engish fandom. (THERE IS A DIFFERENCE BETWEEN ENGLISH SPEAKERS AND ENGLISH FANDOM, SOMETHING IS WRONG WITH YOU PEOPLE CAN'T KEEP SHIT TO YOURSELF),
+
 ✵ IF you can't respect other opinions,
+
 ✵ If you are a 'japeneseboo' (example: GO "OMG YOUR JPNS THAT SO COOL I WANT TO BE YOU" , its disguesting and werid.)
+
 ✵ Overall werido. 
 
 ✵✶✵✶✵✶✵✶✵✶✵✶✵
