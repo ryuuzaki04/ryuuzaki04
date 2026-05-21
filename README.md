@@ -42,7 +42,7 @@ I care about..
 
 E,N,R,W,E,B,M,K,S,E. <3
 
-current following : Project moon (all three games)
+current following : Malevolent Podcast!
 
 -> this user doesn't care about ships hence everyship int 1!
 
@@ -54,6 +54,8 @@ current following : Project moon (all three games)
 ❝Instagram: ryuuzaki0_o
 
 AO3: ryuuo_0
+
+twitter/x: @ryuuha_aowi
 
 Discord : ryuuzaki_04
 
