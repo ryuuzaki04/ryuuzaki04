@@ -28,7 +28,7 @@ DO NOT INT IF:
 
 ✵↷Age: 18
 
-✵↺Sexuality: bisexual (+asexual)
+✵↺Sexuality: AROACE !
 
 ✵↳ Nationality: japanese.
 
